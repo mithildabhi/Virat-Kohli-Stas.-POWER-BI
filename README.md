@@ -16,6 +16,3 @@
 
 ![Screenshot 2025-03-11 133748](https://github.com/user-attachments/assets/4bb3259e-8e6e-4a80-ba40-564c06a3a476)
 
-
-
-![Uploading SUPRAA WALLPAPER.jpg…]()
